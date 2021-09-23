@@ -11,7 +11,7 @@
 
 - 📝 I regularly write articles on [https://medium.com/@furkanademoglu](https://medium.com/@furkanademoglu)
 
-- 📫 How to reach me **furkanademoglu69@gmail.com**
+- 📫 How to reach me **furkanademoglu23@gmail.com**
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/furkan-ademoglu/](https://www.linkedin.com/in/furkan-ademoglu/)
 
